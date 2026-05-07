@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://DevilQuailArcade.github.io/escape-waves-for-l-xm50/) |
  |---------------------|----------------------:|
 
 
